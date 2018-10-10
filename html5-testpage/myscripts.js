@@ -1,0 +1,1 @@
+<script src="//c.fqtag.com/tag/implement-r.js?rt=display&amp;fmt=banner&amp;org=fq3ofHnfNGqwkxaqIJg1&amp;fq=1&amp;sl=1&amp;p=4809626573&amp;a=186807184&amp;cmp=2361219559&amp;rd=https://www.mdedge.com/clinicalneurologynews&amp;c2=18970624&amp;c3=186806344"></script>
