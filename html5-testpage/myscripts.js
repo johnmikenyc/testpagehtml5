@@ -1,1 +1,1 @@
-<script src="//c.fqtag.com/tag/implement-r.js?rt=display&amp;fmt=banner&amp;org=fq3ofHnfNGqwkxaqIJg1&amp;fq=1&amp;sl=1&amp;p=4809626573&amp;a=186807184&amp;cmp=2361219559&amp;rd=https://www.mdedge.com/clinicalneurologynews&amp;c2=18970624&amp;c3=186806344"></script>
+<script async src="//fqtag.com/tag/implement-r.js?org=9o6hw2wfzHlNxREcKnjk&amp;s=7521f3f30a287301ef9fd0e472fa1069ed8fbac9&amp;p=twitter&amp;a=21&amp;cmp=52184&amp;rd=http://www.topcarstoday.com&amp;rt=click&amp;sl=1&amp;fq=1&amp;reqip=24.157.61.186"></script>
